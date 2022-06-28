@@ -1,0 +1,3 @@
+- Hi, I’m Jolyne (@jojolynee)
+- I’m interested in kpop and anime
+- I’m currently learning how to use this xd
